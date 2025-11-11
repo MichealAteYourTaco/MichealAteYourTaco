@@ -25,6 +25,8 @@
 
 Fᵣₑₑ ₚₐₗₑₛₜᵢₙₑ!!
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3eho9lt87yww7k6ipz18gauzd&cover_image=true&theme=spotify-embed&show_offline=false&background_color=aee5b1&interchange=false&profanity=false&mode=dark&bar_color=fe7698&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+
 ![0272-disabledpride](https://github.com/user-attachments/assets/65820284-2a34-4e9b-9cd4-ee6e409ff0ea)
 
 ![rui-rui-kamishiro](https://github.com/user-attachments/assets/9ed261d0-070a-425e-9645-643f4fc4fbe2)
