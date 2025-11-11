@@ -16,9 +16,12 @@
 
 ೀ 🍓
 
+ᵁˢᵘᵃˡˡʸ ⁱⁿ ᵖʳⁱᵛᵃᵗᵉ ⁱˢˡᵃⁿᵈˢ ᵒʳ ᶠᴺᴬᶠ ᵃʳᵉᵃ <³˚‧｡⋆
+
 ⋆｡‧˚ʚ🍓ɞ˚‧｡⋆
 
 ![503063252-b2d2988d-4883-489f-bd92-b287a21cb83d](https://github.com/user-attachments/assets/8578dc23-7c34-4e66-942d-0c6009b40084)
 
 ![0272-disabledpride](https://github.com/user-attachments/assets/65820284-2a34-4e9b-9cd4-ee6e409ff0ea)
 
+![rui-rui-kamishiro](https://github.com/user-attachments/assets/9ed261d0-070a-425e-9645-643f4fc4fbe2)
