@@ -1,10 +1,6 @@
-┊         ┊       ┊   ┊    ┊        ┊
-┊         ┊       ┊   ┊   ˚★⋆｡˚  ⋆
-┊         ┊       ┊   ⋆
-┊         ┊       ★⋆
-┊ ◦
-★⋆      ┊ .  ˚
+
            ˚★.𖥔 ݁ ˖ִ ࣪⚝₊ ⊹˚
+           
 ♡   .   —  ꒰ ᵀʰᵉʸノᵗʰᵉᵐ ꒱ 
 
 <img width="99" height="56" alt="tumblr_inline_rbhh9gYl9A1vefsve_500" src="https://github.com/user-attachments/assets/ab8e079b-ccd3-4161-99ec-15eb356ecd3a" />
